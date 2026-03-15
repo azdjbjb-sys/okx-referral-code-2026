@@ -42,7 +42,7 @@ Using the OKX referral code **26021839** is far from a trivial perk—it's a **s
 
 **🎯 Three Steps to Activate Your Exclusive Benefits:**
 
-1. Visit the [OKX Official Registration Page](https://www.okx.com)
+1. Visit the [OKX Official Registration Page](https://www.okx.com/join/26021839)
 2. Enter **26021839** in the "Referral Code" field
 3. Your 50% fee discount activates instantly! Complete your deposit and trades to unlock the $60,000 reward pool
 
